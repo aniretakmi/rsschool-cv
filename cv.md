@@ -1,2 +1,2 @@
 #Katsiaryna Karpeka
-##Contact Discord @aniretakmi
+##Contact Discord Katsiaryna @aniretakmi
